@@ -1,0 +1,1 @@
+# Davinci-Resolve-Studio-CRACKED
